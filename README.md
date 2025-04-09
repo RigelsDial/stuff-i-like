@@ -1,7 +1,7 @@
 # interests / favs
 spoiler alert for dr stone, dungeon meshi and.. er. More when i get to adding them.
 
-
+Anime:
 
 <br> Dr. Stone
 <br> ![Image](https://github.com/user-attachments/assets/dbf93a31-fe60-4534-aaab-074f4d39110c)
@@ -15,4 +15,7 @@ spoiler alert for dr stone, dungeon meshi and.. er. More when i get to adding th
 ![falin1](https://github.com/user-attachments/assets/63ba3488-88a6-4cfa-8696-b18aac60d61b)
 ![bloodbrush](https://github.com/user-attachments/assets/5e9277ed-1f06-4bde-bda5-4f7063d8b6e9)
 ![scalesshrunk](https://github.com/user-attachments/assets/66754046-948b-4b5b-932e-c8ee68ccd289)
-<br>![clearermeat-ezgif com-resize](https://github.com/user-attachments/assets/66c9ee44-e085-4619-af23-2c435bd05a28)┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈![clearermeat-ezgif com-resize](https://github.com/user-attachments/assets/6a5f8035-184e-4c79-be74-26c8f01ccdbc)
+<br>![clearermeat-ezgif com-resize](https://github.com/user-attachments/assets/66c9ee44-e085-4619-af23-2c435bd05a28)┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈![clearermeat-ezgif com-resize](https://github.com/user-attachments/assets/6a5f8035-184e-4c79-be74-26c8f01ccdbc)
+<br> Houseki No Kuni
+<br>
+![phos](https://github.com/user-attachments/assets/20bfeef3-10ff-4c82-93c2-05e8e4dfa310)
